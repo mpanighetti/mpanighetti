@@ -1,5 +1,5 @@
-### ``mpanighetti`` 👩‍💻
+### ``mpanighetti`` 🧑‍💻
 
-- 😄 pronouns: he/him
+- 😄 pronouns: he/they
 - 🔭 where to find me: [a website 🌐](https://mario.panighetti.net)
-- 💬 ask me about: roleplaying kenku 🐧, bread crimes 🥖
+- 💬 ask me about: dungeons & dragons ⚔️🐉, bread crimes 🥖
